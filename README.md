@@ -1,1 +1,1 @@
-# YZT-E-itimleri
+# YZT-Egitimleri
